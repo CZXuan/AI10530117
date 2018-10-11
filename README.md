@@ -5,5 +5,6 @@
 
 
 
-I am studing Chaoyang University of Technology.
-I have a dream,that is help everybody.
+My name is ZEIXUAN,CAI.
+
+My student number is 10530117.
